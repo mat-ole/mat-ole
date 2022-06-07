@@ -1,4 +1,4 @@
 Hi, I’m @pretendastronomer
-I'm a PhD  working in radioastronomy
+I'm a scientist working in radioastronomy
 
 
